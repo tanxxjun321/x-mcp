@@ -119,6 +119,8 @@ https://github.com/user-attachments/assets/a41faf51-0d0f-48ca-bde5-0a92efac4bde
 
 ### 微信群聊
 
-![x-mcp](https://github.com/user-attachments/assets/38c5bdd9-fced-4c2b-8307-ba3a1cc4662a)
+
+![x-mcp-qr](https://github.com/user-attachments/assets/aa75b368-3558-410c-a214-94817631fb2f)
+
 
 
